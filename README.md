@@ -1,5 +1,7 @@
 João Antonio - game artist 
+
 Olá !  sou João Antonio e sou artista visual de jogos 
+
 como trabalho : Eu crio cenários e visuais para personagens e elementos de jogos 
 Minha área de trabalho 
 - Concept Art
